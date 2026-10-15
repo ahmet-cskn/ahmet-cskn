@@ -1,4 +1,4 @@
-## Thanks for stopping by! 👋
+## Hi, I'm Ahmet! 👋
 
 📚Currently pursuing a Master’s degree in Computer Science at the Technical University of Munich.
 
